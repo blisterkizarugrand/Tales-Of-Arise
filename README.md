@@ -227,4 +227,4 @@ This is the full free version of Tales of Arise, which includes all features and
 Don't wait any longer! Experience the revolutionary JRPG today with **Tales of Arise free download** for Windows. Your adventure awaits!
 
 ---
-**Last updated:** 2026-10-11 01:29:10 UTC
+**Last updated:** 2026-10-11 08:09:50 UTC
